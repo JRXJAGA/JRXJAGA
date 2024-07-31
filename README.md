@@ -1,4 +1,4 @@
-## **OII, BEM VINDO!!** 🎀
+## **BEM VINDO!!** 🎀
 
  Julia Romangnolli Xavier
 
